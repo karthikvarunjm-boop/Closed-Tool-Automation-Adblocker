@@ -1,0 +1,1 @@
+# Closed-Tool-Automation-Adblocker
